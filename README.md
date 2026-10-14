@@ -1,2 +1,2 @@
-hasiudkñjasbFKJBSDKJFBJKDSBFLJKBSDFJKBDSLKJFB
+este Contador Manual que cuenta cosas
 
